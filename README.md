@@ -51,7 +51,7 @@
 
 ## Project Sketch
 
-![Labirent]([https://www.jindoblu.com/wp-content/uploads/3_RunBallGame_Screenshot_1.png-1-960x665.jpg](https://tr.depositphotos.com/242737008/stock-illustration-white-vector-dackdrop-black-conundrum.html.jpg))
+![Labirent](https://w7.pngwing.com/pngs/148/707/png-transparent-labyrinth-maze-game-jigsaw-puzzles-labyrinth-game-angle-text.png)
 
 
 
